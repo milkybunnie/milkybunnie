@@ -5,7 +5,7 @@
 <img align="left" src="https://i.postimg.cc/mgQxKS2V/gh2-2.png">
 <p align="left"> ⊹ C+H friendly! Mostly afk so w2i! </p>
 <p align="left"> ⊹ I'm always happy to make new friends, only if you're an adult tho >< </sup></p>
-<p align="left"> ⊹ Safe RU Hoyo & DR zones</p>
+<p align="left"> ⊹ Safe RU #1 Hoyo & DR zones</p>
 <p align="left"> ⊹ Fluent RUS & ENG. I understand Japanese too but can't speak it properly</p>
 <p align="right">♡♡♡ </p>
 
