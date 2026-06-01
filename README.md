@@ -20,7 +20,7 @@
 <p align="right"> 𝑲𝒊𝒏𝒔: Kaveh, Aventurine, Kashiki Yuno ⊹ </p>
 <div align="left">
   
-  ![](https://komarev.com/ghpvc/?username=rua-magica&color=grey&label=💖)
+  ![](https://komarev.com/ghpvc/?username=rua-magica&color=grey&label=🎀)
 </div>
 
 <div align="center">
