@@ -15,7 +15,7 @@
   
 <img align="right" src="https://i.postimg.cc/76nD28Wn/gh3-2.png">
 <p align="right"> 𝑪𝒖𝒓𝒓𝒆𝒏𝒕 𝒇𝒂𝒏𝒅𝒐𝒎𝒔: PMMM, MP100, Vocaloids, DDLC, MLP, HSR ⊹ </p>
-<p align="right"> 𝑰𝒏𝒂𝒄𝒕𝒊𝒗𝒆: YTTD, Chiikawa, DR, NSO, BSD, GI & many more ⊹ </sup></p>
+<p align="right"> 𝑰𝒏𝒂𝒄𝒕𝒊𝒗𝒆: YTTD, Chiikawa, DR, NSO, BSD, GI, MILGRAM, PASWG & many more ⊹ </sup></p>
 <p align="right"> 𝑭𝒂𝒗 𝒗𝒐𝒄𝒂𝑷𝒔: MARETU, PEPOYO, ¿?Shimon, umbrabyte ⊹ </p>
 <p align="right"> 𝑲𝒊𝒏𝒔: Kaveh, Aventurine, Kashiki Yuno ⊹ </p>
 <div align="left">
