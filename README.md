@@ -1,36 +1,28 @@
-<img align="left" src="https://i.postimg.cc/RZhGLHDM/gh2.png"><img align="right" src="https://iili.io/fC39TXe.png">
-<p align="left"><sup> ????????????? ????????????????????????? ????</sup></p>
-<p align="left"><sup> ????????????????????? ???????? </sup></p>
-<p align="left"><sup> ???????????????????? ?????????????????????? ???????????</sup></p>
-<p align="left"><sup> ??? ??????????</sup></p>
-<p align="right">The world you were born in no longer exists. </p>
-
----
+<div align="center"> 
+ <p align="center"> <img src="https://pixelsafari.neocities.org/dividers/more/letters.png"</p>
+</div>
+  
+<img align="left" src="https://i.postimg.cc/mgQxKS2V/gh2-2.png">
+<p align="left"> ⊹ C+H friendly! Mostly afk so w2i! </p>
+<p align="left"> ⊹ I'm always happy to make new friends, only if you're an adult tho >< </sup></p>
+<p align="left"> ⊹ Safe RU Hoyo & DR zones</p>
+<p align="left"> ⊹ Fluent RUS & ENG. I understand Japanese too but can't speak it properly</p>
+<p align="right">♡♡♡ </p>
 
 <div align="center"> 
+ <p align="center"> <img src="https://pixelsafari.neocities.org/dividers/more/letters.png"</p>
+</div>
   
-  ![](https://komarev.com/ghpvc/?username=rua-magica&color=grey&label=👁️)
-  </div>
+<img align="right" src="https://i.postimg.cc/76nD28Wn/gh3-2.png">
+<p align="right"> 𝑪𝒖𝒓𝒓𝒆𝒏𝒕 𝒇𝒂𝒏𝒅𝒐𝒎𝒔: PMMM, MP100, Vocaloids, DDLC, MLP, HSR ⊹ </p>
+<p align="right"> 𝑰𝒏𝒂𝒄𝒕𝒊𝒗𝒆: YTTD, Chiikawa, DR, NSO, BSD, GI & many more ⊹ </sup></p>
+<p align="right"> 𝑭𝒂𝒗 𝒗𝒐𝒄𝒂𝑷𝒔: MARETU, PEPOYO, ¿?Shimon, umbrabyte ⊹ </p>
+<p align="right"> 𝑲𝒊𝒏𝒔: Kaveh, Aventurine, Kashiki Yuno ⊹ </p>
+<div align="left">
   
-<p align="center"> <img src="https://pixelsafari.neocities.org/dividers/heartbeat.gif"</p>
+  ![](https://komarev.com/ghpvc/?username=rua-magica&color=grey&label=💖)
+</div>
 
-<p align="center">21 y.o. | INTP 4w5</p>
-<p align="center">ㅤjirai - menhera - artist - professional yearner</p>
-  
-<p align="center"><img src="https://pixelsafari.neocities.org/dividers/more/eyes.gif"></p>
-
-<p align="center"> 𝐤𝐢𝐧𝐬: kaveh, aventurine, tatsunami shion. reanalyzing → shin tsukimi</p>
-<p align="center"> 𝐜𝐮𝐫𝐫𝐞𝐧𝐭 𝐟𝐚𝐧𝐝𝐨𝐦𝐬: pmmm, yttd, mp100, vocaloids, ddlc, mlp, gi, hsr </p>
-<p align="center"> 𝐟𝐚𝐯 𝐯𝐨𝐜𝐚𝐏𝐬: MARETU, PEPOYO, ¿?Shimon, umbrabyte </p>
-
-<p align="center"> <img src="https://pixelsafari.neocities.org/dividers/more/cat4.png" width="400" height="80"/></p>
-<p align="center">The snake will continue to swallow itself whole.</p>
-<p align="center"><img src="https://iili.io/fCdcOWF.png"></p>
-
----
-
-| <p align="left">MARETU-sama... Please, just one more song. Just one more please MARETU-sama one more song I'm begging you please. PLEASE please one more release one more album MARETU-sama... PLEASE MARETU DON'T LEAVE US NO PLEASE MARETU SAMA JUST ONE MORE SONG PLEASE DROP AN ALBUM PLEASE TWEET SOMETHING I CAN'T TAKE IT PLEASE I LOVE YOU</p> <p align="center"><img src="https://pixelsafari.neocities.org/dividers/more/blood.png"></p> | <img align="right" src="https://media1.tenor.com/m/2F7QP9tDPW0AAAAd/let-me-in-uncanny.gif" width="250" height="200"/> |
-|-----|---------------|
-  
-| <img src="https://iili.io/qJfEFyX.png"> | <img src="https://iili.io/f6De2Gs.png"> | <img src="https://iili.io/f6DkP1a.png"> | <img src="https://iili.io/fPfkd9p.png"> |
-|-----|-----|-----|-----|
+<div align="center">
+  <p align="center"> <img src="https://pixelsafari.neocities.org/dividers/more/letters.png"</p>
+</div>
