@@ -14,7 +14,7 @@
 <p align="center">I T ‘ S 　 P A I N 　 S E A S O N </p>
 <p align="left">　　　</p>
 <p align="left">Jirai, digital artist</p>
-<p align="left">I have mental issues (diagnosed) T_T</p>
+<p align="left">Mercedes-Benz > BMW</p>
 <p align="left">Big fan of MARETU, ¿?Shimon, PEPOYO, 1-800 PAIN, etc.!</p>
 <p align="left">CEO of spending money on Aven</p>
 <p align="left">Minors & Aventurine haters DNI!!!</p>
