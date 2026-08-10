@@ -37,5 +37,5 @@
   <p align="center"> <img src="https://pixelsafari.neocities.org/stamps/more/panic.png"> <img src="https://external-media.spacehey.net/media/s5jFGlnX-NuoKh4XvAJlGJF_QJs3N1ug0RlJqdQaOAYU=/https://64.media.tumblr.com/eb4a12d9e40403cb0558d2f105d0a76f/22f12c80d6958c3d-52/s100x200/13f3f3348b71c58b64216e975b9698e867fcf0ca.gifv"> <img src="https://pixelsafari.neocities.org/stamps/nononono.gif"> <img src="https://pixelsafari.neocities.org/stamps/more/typos.gif"> 
 <p align="center">Heard you took an L, ts make me happy ⸜(｡˃ ᵕ ˂ )⸝</p>
 <p align="center">I love when you fail, ts make me happy ^_^</p>
-  <p align="center"> <img src="https://i.postimg.cc/HnnZZdJ3/gh1.png"</p> 
+  <p align="center"> <img src="https://i.postimg.cc/HnnZZdJ3/gh1.png"</p> <img src="https://i.postimg.cc/02xbhnPw/gh2.png">
 <p align="center"> <img src="https://pixelsafari.neocities.org/misc/adcar.gif"</p>
