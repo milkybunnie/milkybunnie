@@ -26,7 +26,7 @@
 
 ---
 
- <p align="center"> <img src="https://64.media.tumblr.com/f919ac15c2d10a3beafd378c69226cc9/294d456de121e534-7e/s250x250_c1/100f39a9d0a2dc303c83aa780598528b1eb540f1.gifv"</p> <img src="https://64.media.tumblr.com/df59e2938195af19ad332e58daffb8bf/fbed73e8b7496a08-0f/s250x250_c1/09bdd5121604d0dc68c97f74c7715de272bc89a4.gifv"</p>
+<p align="center"> <img src="https://pixelsafari.neocities.org/blinkies/whereami.gif"> <img src="https://64.media.tumblr.com/f919ac15c2d10a3beafd378c69226cc9/294d456de121e534-7e/s250x250_c1/100f39a9d0a2dc303c83aa780598528b1eb540f1.gifv"</p> <img src="https://64.media.tumblr.com/df59e2938195af19ad332e58daffb8bf/fbed73e8b7496a08-0f/s250x250_c1/09bdd5121604d0dc68c97f74c7715de272bc89a4.gifv"</p>
 
 |<img src="https://i.postimg.cc/ZYBSRcQp/AVAN2.png">|<img src="https://i.postimg.cc/PqP646YK/AVAN3.png">|<img src="https://i.postimg.cc/Hxb9ZFx9/AVAN4.png">|
 |-----|-----|-----|
@@ -36,4 +36,5 @@
   <p align="center"> <img src="https://pixelsafari.neocities.org/stamps/more/panic.png"> <img src="https://external-media.spacehey.net/media/s5jFGlnX-NuoKh4XvAJlGJF_QJs3N1ug0RlJqdQaOAYU=/https://64.media.tumblr.com/eb4a12d9e40403cb0558d2f105d0a76f/22f12c80d6958c3d-52/s100x200/13f3f3348b71c58b64216e975b9698e867fcf0ca.gifv"> <img src="https://pixelsafari.neocities.org/stamps/nononono.gif"> <img src="https://pixelsafari.neocities.org/stamps/more/typos.gif"> 
 <p align="center">Heard you took an L, ts make me happy ⸜(｡˃ ᵕ ˂ )⸝</p>
 <p align="center">I love when you fail, ts make me happy ^_^</p>
-  <p align="center"> <img src="https://pixelsafari.neocities.org/misc/adcar.gif"</p>
+  <p align="center"> <img src="https://i.postimg.cc/HnnZZdJ3/gh1.png"</p> 
+<p align="center"> <img src="https://pixelsafari.neocities.org/misc/adcar.gif"</p>
