@@ -1,8 +1,8 @@
  <p align="center"> <img src="https://pixelsafari.neocities.org/misc/userbox/wrong.jpg"> <img src="https://64.media.tumblr.com/dfb26a5845727b5538967674e7e06aec/9350e5882067ba7f-30/s100x200/e730ad3f5cc658aa7cc0eb39691554846ec6163c.gifv"/>
  <p align="center"> <img src="https://pixelsafari.neocities.org/favicon/object/toy/toy9.gif"> <img src="https://pixelsafari.neocities.org/favicon/object/toy/casino.gif"> <img src="https://pixelsafari.neocities.org/favicon/object/toy/casino2.gif"> 
-<p align="center">Heard you took an L, ts make me happy ⸜(｡˃ ᵕ ˂ )⸝</p>
-<p align="center">I love when you fail, ts make me happy ^_^</p>
+ <p align="center"> She sought death on a queen-sized bed</p>
  <p align="center"> <img src="https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExbmFuYXJubnYwMWlvMnhuNDd3ZTQwc296M3hlOXJ0bmczdTQ1YnhtYyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/jDu1WGlS4bGxxfinBL/giphy.gif"</p>
+ <p align="center"> And he had said, "Darling, your looks can kill, so now you're dead."</p>
  <p align="center"> <img src="https://pixelsafari.neocities.org/stamps/more/brick.jpg">  <img src="https://magma.com/shared/5Lf8nP1mD-VxuEt64ZSNsw"/> <img src="https://64.media.tumblr.com/6310ad859e434a81b2c9f00f39a34071/9350e5882067ba7f-9b/s100x200/608c91a68cc9f077b6974c2d212af037e24b9c6a.gifv"> <img src="https://pixelsafari.neocities.org/stamps/iloveyou2.gif">
 
 ---
@@ -34,5 +34,6 @@
  <p align="center"> <img src="https://pixelsafari.neocities.org/dividers/iloveyou.gif"</p> 
 
   <p align="center"> <img src="https://pixelsafari.neocities.org/stamps/more/panic.png"> <img src="https://external-media.spacehey.net/media/s5jFGlnX-NuoKh4XvAJlGJF_QJs3N1ug0RlJqdQaOAYU=/https://64.media.tumblr.com/eb4a12d9e40403cb0558d2f105d0a76f/22f12c80d6958c3d-52/s100x200/13f3f3348b71c58b64216e975b9698e867fcf0ca.gifv"> <img src="https://pixelsafari.neocities.org/stamps/nononono.gif"> <img src="https://pixelsafari.neocities.org/stamps/more/typos.gif"> 
-
+<p align="center">Heard you took an L, ts make me happy ⸜(｡˃ ᵕ ˂ )⸝</p>
+<p align="center">I love when you fail, ts make me happy ^_^</p>
   <p align="center"> <img src="https://pixelsafari.neocities.org/misc/adcar.gif"</p>
