@@ -9,6 +9,7 @@
 ---
 
 <img align="left" src="https://i.postimg.cc/Z5XMw0zt/av-git2.png"> <img align="right" src="https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExbWpkdWc5NnlndjZub3ZqeTNoNDQ0dnhnbmJhejB3Yjk2YzJvdGlkOSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/NfdGWqbWFbegLNmMGh/giphy.gif">
+<p align="left">　　　</p>
 <p align="left"><sup> <div align="center">
   
   ![](https://komarev.com/ghpvc/?username=rua-magica&color=5BBDA7&label=🎰)</sup></p>
