@@ -15,11 +15,11 @@
   ![](https://komarev.com/ghpvc/?username=rua-magica&color=5BBDA7&label=🎰)</sup></p>
 <p align="center">I T ‘ S 　 P A I N 　 S E A S O N </p>
 <p align="left">　　　</p>
-<p align="left">Jirai, digital artist</p>
-<p align="left">CEO of spending money on Aven</p>
-<p align="left">Big fan of MARETU, ¿?Shimon, PEPOYO, 1-800 PAIN, etc.!</p>
-<p align="left">Mercedes-Benz > BMW</p>
-<p align="left">Minors & Aventurine haters DNI!!!</p>
+<p align="left">ー,, Jirai, digital artist</p>
+<p align="left">ー,, CEO of spending money on Aven</p>
+<p align="left">ー,, Big fan of MARETU, ¿?Shimon, PEPOYO, 1-800 PAIN, etc.!</p>
+<p align="left">ー,, Mercedes-Benz > BMW</p>
+<p align="left">ー,, Minors & Aventurine haters DNI!!!</p>
 <p align="left"> 　　　</p>
 <p align="left">B DON'T CALL ME HANDSOME</p>
 <p align="left">B I AM GORGEOUS</p>
