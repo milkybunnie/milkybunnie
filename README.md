@@ -8,22 +8,23 @@
 
 ---
 
-<img align="left" src="https://i.postimg.cc/tJwx5Tzf/av-git.png"> <img align="right" src="https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExbWpkdWc5NnlndjZub3ZqeTNoNDQ0dnhnbmJhejB3Yjk2YzJvdGlkOSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/NfdGWqbWFbegLNmMGh/giphy.gif">
+<img align="left" src="https://i.postimg.cc/Z5XMw0zt/av-git2.png"> <img align="right" src="https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExbWpkdWc5NnlndjZub3ZqeTNoNDQ0dnhnbmJhejB3Yjk2YzJvdGlkOSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/NfdGWqbWFbegLNmMGh/giphy.gif">
 <p align="left"><sup> <div align="center">
   
   ![](https://komarev.com/ghpvc/?username=rua-magica&color=5BBDA7&label=🎰)</sup></p>
 <p align="center">I T ‘ S 　 P A I N 　 S E A S O N </p>
 <p align="left">　　　</p>
 <p align="left">Jirai, digital artist</p>
-<p align="left">Mercedes-Benz > BMW</p>
-<p align="left">Big fan of MARETU, ¿?Shimon, PEPOYO, 1-800 PAIN, etc.!</p>
 <p align="left">CEO of spending money on Aven</p>
+<p align="left">Big fan of MARETU, ¿?Shimon, PEPOYO, 1-800 PAIN, etc.!</p>
+<p align="left">Mercedes-Benz > BMW</p>
 <p align="left">Minors & Aventurine haters DNI!!!</p>
 <p align="left"> 　　　</p>
 <p align="left">B DON'T CALL ME HANDSOME</p>
 <p align="left">B I AM GORGEOUS</p>
 <p align="left">I MIGHT ROB EVERYBODY ON THE FORBES LIST</p>
 <p align="right">【𝟏 𝟖𝟎𝟎 𝐏𝐀𝐈𝐍 - 𝐅𝐎𝐑𝐁𝐄𝐒 𝐋𝐈𝐒𝐓】　 </p>
+
 
 ---
 
@@ -37,5 +38,10 @@
   <p align="center"> <img src="https://pixelsafari.neocities.org/stamps/more/panic.png"> <img src="https://external-media.spacehey.net/media/s5jFGlnX-NuoKh4XvAJlGJF_QJs3N1ug0RlJqdQaOAYU=/https://64.media.tumblr.com/eb4a12d9e40403cb0558d2f105d0a76f/22f12c80d6958c3d-52/s100x200/13f3f3348b71c58b64216e975b9698e867fcf0ca.gifv"> <img src="https://pixelsafari.neocities.org/stamps/nononono.gif"> <img src="https://pixelsafari.neocities.org/stamps/more/typos.gif"> 
 <p align="center">Heard you took an L, ts make me happy ⸜(｡˃ ᵕ ˂ )⸝</p>
 <p align="center">I love when you fail, ts make me happy ^_^</p>
-  <p align="center"> <img src="https://i.postimg.cc/HnnZZdJ3/gh1.png"</p> <img src="https://i.postimg.cc/02xbhnPw/gh2.png">
+<img align="left" src="https://i.postimg.cc/HnnZZdJ3/gh1.png"><img align="right" src="https://i.postimg.cc/02xbhnPw/gh2.png">
+<p align="left">　　　</p>
+<p align="left">　　　</p>
+<p align="left">　　　</p>
+<p align="left">　　　</p>
+<p align="left">　　　</p>
 <p align="center"> <img src="https://pixelsafari.neocities.org/misc/adcar.gif"</p>
