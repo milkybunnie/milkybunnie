@@ -6,8 +6,7 @@
  <p align="center"> And he had said, "Darling, your looks can kill, so now you're dead."</p>
  <p align="center"> <img src="https://pixelsafari.neocities.org/stamps/more/brick.jpg">  <img src="https://magma.com/shared/5Lf8nP1mD-VxuEt64ZSNsw"/> <img src="https://64.media.tumblr.com/6310ad859e434a81b2c9f00f39a34071/9350e5882067ba7f-9b/s100x200/608c91a68cc9f077b6974c2d212af037e24b9c6a.gifv"> <img src="https://pixelsafari.neocities.org/stamps/iloveyou2.gif">
 
----
-
+<p align="center">　　　</p>
 <img align="left" src="https://i.postimg.cc/Z5XMw0zt/av-git2.png"> <img align="right" src="https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExbWpkdWc5NnlndjZub3ZqeTNoNDQ0dnhnbmJhejB3Yjk2YzJvdGlkOSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/NfdGWqbWFbegLNmMGh/giphy.gif">
 
 <p align="left"><sup> <div align="center">
@@ -25,9 +24,8 @@
 <p align="left">𝘉 𝘐 𝘈𝘔 𝘎𝘖𝘙𝘎𝘌𝘖𝘜𝘚</p>
 <p align="left">𝘐 𝘔𝘐𝘎𝘏𝘛 𝘙𝘖𝘉 𝘌𝘝𝘌𝘙𝘠𝘉𝘖𝘋𝘠 𝘖𝘕 𝘛𝘏𝘌 𝘍𝘖𝘙𝘉𝘌𝘚 𝘓𝘐𝘚𝘛</p>
 <p align="right">【𝟏 𝟖𝟎𝟎 𝐏𝐀𝐈𝐍 - 𝐅𝐎𝐑𝐁𝐄𝐒 𝐋𝐈𝐒𝐓】　 </p>
+<p align="center">　　　</p>
 
-
----
 
 <p align="center"> <img src="https://64.media.tumblr.com/120c669e38083ce23f0fb0c862810cb5/fbed73e8b7496a08-a6/s250x250_c1/bf91670a3f85135b50066b3525aa92e4231e918a.gifv"> <img src="https://64.media.tumblr.com/f919ac15c2d10a3beafd378c69226cc9/294d456de121e534-7e/s250x250_c1/100f39a9d0a2dc303c83aa780598528b1eb540f1.gifv"</p> <img src="https://64.media.tumblr.com/df59e2938195af19ad332e58daffb8bf/fbed73e8b7496a08-0f/s250x250_c1/09bdd5121604d0dc68c97f74c7715de272bc89a4.gifv"</p>
 
