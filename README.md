@@ -18,7 +18,7 @@
 <p align="left">ー,, CEO of spending money on Aven</p>
 <p align="left">ー,, Big fan of MARETU, ¿?Shimon, PEPOYO, 1-800 PAIN, etc.!</p>
 <p align="left">ー,, NO I dont yumeship with Aven</p>
-<p align="left">ー,, Minors, Aventurine haters and fans DNI!!!</p>
+<p align="left">ー,, Minors DNI!!!</p>
 <p align="center">　𝄃𝄃𝄂𝄂𝄀𝄁𝄃𝄂𝄂𝄃　</p>
 <p align="left">𝘉 𝘋𝘖𝘕'𝘛 𝘊𝘈𝘓𝘓 𝘔𝘌 𝘏𝘈𝘕𝘋𝘚𝘖𝘔𝘌</p>
 <p align="left">𝘉 𝘐 𝘈𝘔 𝘎𝘖𝘙𝘎𝘌𝘖𝘜𝘚</p>
