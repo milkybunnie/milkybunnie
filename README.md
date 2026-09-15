@@ -35,6 +35,6 @@
 
 <p align="center">Heard you took an L, ts make me happy ⸜(｡˃ ᵕ ˂ )⸝</p>
 
-<img align="center" src="https://i.postimg.cc/HnnZZdJ3/gh1.png"><img align="center" src="https://i.postimg.cc/02xbhnPw/gh2.png">
+<img align="center" src="https://i.postimg.cc/HnnZZdJ3/gh1.png"><img align="center" src="https://i.postimg.cc/02xbhnPw/gh2.png"><img align="center" src="https://i.postimg.cc/Cx1LSSL7/gh3.png">
 
 <p align="center">I love when you fail, ts make me happy ^_^</p>
