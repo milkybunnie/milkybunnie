@@ -14,11 +14,11 @@
   ![](https://komarev.com/ghpvc/?username=rua-magica&color=5BBDA7&label=🎰)</sup></p>
 <p align="center">I T ‘ S 　 P A I N 　 S E A S O N </p>
 <p align="center">　𝄃𝄃𝄂𝄂𝄀𝄁𝄃𝄂𝄂𝄃　</p>
-<p align="left">ー,, Jirai, digital artist</p>
-<p align="left">ー,, Big fan of MARETU, ¿?Shimon, PEPOYO, 1-800 PAIN, etc.!</p>
-<p align="left">ー,, NO I dont yumeship with Aven</p>
-<p align="left">ー,, ↑ I dont like any ships with him either</p
-><p align="left">ー,, I never interact first. w2i</p>
+<p align="left">ー,, Jirai, digital artist, Aventurine fan</p>
+<p align="left">ー,, NO I don't selfship with Aven</p>
+<p align="left">ー,, ↑ I don't like any ships with him either</p>
+<p align="left">ー,, MINORS DNI</p
+><p align="left">ー,, Mentally ill + a freak</p>
 <p align="center">　𝄃𝄃𝄂𝄂𝄀𝄁𝄃𝄂𝄂𝄃　</p>
 <p align="left">𝘉 𝘋𝘖𝘕'𝘛 𝘊𝘈𝘓𝘓 𝘔𝘌 𝘏𝘈𝘕𝘋𝘚𝘖𝘔𝘌</p>
 <p align="left">𝘉 𝘐 𝘈𝘔 𝘎𝘖𝘙𝘎𝘌𝘖𝘜𝘚</p>
