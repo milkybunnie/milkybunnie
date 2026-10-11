@@ -11,7 +11,7 @@
 
 <p align="left"><sup> <div align="center">
   
-  ![](https://komarev.com/ghpvc/?username=rua-magica&color=5BBDA7&label=🎰)</sup></p>
+  ![](https://komarev.com/ghpvc/?username=milkybunnie&color=5BBDA7&label=🎰&base=2200)</sup></p>
 <p align="center">I T ‘ S 　 P A I N 　 S E A S O N </p>
 <p align="center">　𝄃𝄃𝄂𝄂𝄀𝄁𝄃𝄂𝄂𝄃　</p>
 <p align="left">ー,, Jirai, digital artist, Aventurine fan</p>
