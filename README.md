@@ -4,7 +4,7 @@
  <p align="center"> She sought death on a queen-sized bed</p>
  <p align="center"> <img src="https://media1.tenor.com/m/o8AnLMn_HuwAAAAd/aventurine-aventurine-waveflair-hsr-honkaistarrail.gif"width="550" height="300"/> </p>
  <p align="center"> And he had said, "Darling, your looks can kill, so now you're dead."</p>
- <p align="center"> <img src="https://pixelsafari.neocities.org/stamps/more/brick.jpg">  <img src="https://magma.com/shared/5Lf8nP1mD-VxuEt64ZSNsw"/> <img src="https://64.media.tumblr.com/6310ad859e434a81b2c9f00f39a34071/9350e5882067ba7f-9b/s100x200/608c91a68cc9f077b6974c2d212af037e24b9c6a.gifv"> <img src="https://pixelsafari.neocities.org/stamps/iloveyou2.gif">
+ <p align="center"> <img src="https://pixelsafari.neocities.org/stamps/aesthetic/red/bloodyheart.gif">  <img src="https://magma.com/shared/5Lf8nP1mD-VxuEt64ZSNsw"/> <img src="https://external-media.spacehey.net/media/s5jFGlnX-NuoKh4XvAJlGJF_QJs3N1ug0RlJqdQaOAYU=/https://64.media.tumblr.com/eb4a12d9e40403cb0558d2f105d0a76f/22f12c80d6958c3d-52/s100x200/13f3f3348b71c58b64216e975b9698e867fcf0ca.gifv"> <img src="https://pixelsafari.neocities.org/stamps/cute/sugar.png"> <img src="https://pixelsafari.neocities.org/stamps/quotes/imsuicidal.png"> 
 
 <p align="center">　　　</p>
 <img align="left" src="https://i.postimg.cc/Z5XMw0zt/av-git2.png"> <img align="right" src="https://i.postimg.cc/4NSb9GS8/wawen5.png" </p>
@@ -31,7 +31,7 @@
  <p align="center"> <img src="https://media1.tenor.com/m/ijkW1jCLxkMAAAAd/aventurine-aventurine-waveflair.gif" width="550" height="300"/></p>
   <p align="center"> <img src="https://pixelsafari.neocities.org/dividers/iloveyou.gif"</p> 
 
-  <p align="center"> <img src="https://pixelsafari.neocities.org/stamps/more/panic.png"> <img src="https://external-media.spacehey.net/media/s5jFGlnX-NuoKh4XvAJlGJF_QJs3N1ug0RlJqdQaOAYU=/https://64.media.tumblr.com/eb4a12d9e40403cb0558d2f105d0a76f/22f12c80d6958c3d-52/s100x200/13f3f3348b71c58b64216e975b9698e867fcf0ca.gifv"> <img src="https://pixelsafari.neocities.org/stamps/nononono.gif"> <img src="https://pixelsafari.neocities.org/stamps/more/typos.gif"> 
+  <p align="center"> <img src="https://pixelsafari.neocities.org/stamps/more/panic.png"> <img src="https://pixelsafari.neocities.org/stamps/quotes/dontgetattached.gif"> <img src="https://pixelsafari.neocities.org/stamps/nononono.gif"> <img src="https://pixelsafari.neocities.org/stamps/quotes/howifeel.gif"> <img src="https://pixelsafari.neocities.org/stamps/more/aaaaaa.gif"> 
 
 <p align="center">Heard you took an L, ts make me happy ⸜(｡˃ ᵕ ˂ )⸝</p>
 
