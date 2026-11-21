@@ -1,5 +1,5 @@
  <p align="center"> <img src="https://web.archive.org/web/20060426065748if_/http://hk.geocities.com:80/whywhyhelen/playboy.gif"width="30" height="40" /> <img src="https://64.media.tumblr.com/3cf6d04fa7a43a0fa9807be43aabcf61/e46d855e455c29ac-89/s1280x1920/7556ea6917e526408305807105660c5b8ef67089.gifv"/> <img src="https://web.archive.org/web/20060426065748if_/http://hk.geocities.com:80/whywhyhelen/playboy.gif"width="30" height="40" />
- <p align="center"> <img src="https://files.catbox.moe/06y3v3.png"/> <img src="https://pixelsafari.neocities.org/misc/userbox/wrong.jpg"> <img src="https://64.media.tumblr.com/dfb26a5845727b5538967674e7e06aec/9350e5882067ba7f-30/s100x200/e730ad3f5cc658aa7cc0eb39691554846ec6163c.gifv"/>
+ <p align="center"> <img src="https://files.catbox.moe/06y3v3.png"/> <img src="https://pixelsafari.neocities.org/misc/userbox/scrappydoo.jpg"> <img src="https://pixelsafari.neocities.org/stamps/aesthetic/pink/gloomybear.png"/>
  <p align="center"> <img src="https://64.media.tumblr.com/e73b35d14cb812bb46b4ca9041c6cf1c/e320d9e6ebb46a7e-4f/s75x75_c1/6e11c000b29baaf436974d4478a00d8bced4f9e8.gifv"</p>
  <p align="center"> She sought death on a queen-sized bed</p>
  <p align="center"> <img src="https://media1.tenor.com/m/o8AnLMn_HuwAAAAd/aventurine-aventurine-waveflair-hsr-honkaistarrail.gif"width="550" height="300"/> </p>
