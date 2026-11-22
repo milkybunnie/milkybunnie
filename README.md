@@ -1,10 +1,12 @@
  <p align="center"> <img src="https://web.archive.org/web/20060426065748if_/http://hk.geocities.com:80/whywhyhelen/playboy.gif"width="30" height="40" /> <img src="https://64.media.tumblr.com/3cf6d04fa7a43a0fa9807be43aabcf61/e46d855e455c29ac-89/s1280x1920/7556ea6917e526408305807105660c5b8ef67089.gifv"/> <img src="https://web.archive.org/web/20060426065748if_/http://hk.geocities.com:80/whywhyhelen/playboy.gif"width="30" height="40" />
- <p align="center"> <img src="https://files.catbox.moe/06y3v3.png"/> <img src="https://pixelsafari.neocities.org/misc/userbox/scrappydoo.jpg"> <img src="https://pixelsafari.neocities.org/stamps/aesthetic/pink/gloomybear.png"/>
- <p align="center"> <img src="https://64.media.tumblr.com/e73b35d14cb812bb46b4ca9041c6cf1c/e320d9e6ebb46a7e-4f/s75x75_c1/6e11c000b29baaf436974d4478a00d8bced4f9e8.gifv"</p>
+ <p align="center"> <img src="https://i.ibb.co/tMbpPWyy/b414a52cee9b8f2e891ec65662af30bb123f2218-pnj.png"/> <img src="https://pixelsafari.neocities.org/misc/userbox/scrappydoo.jpg"> <img src="https://pixelsafari.neocities.org/stamps/aesthetic/pink/gloomybear.png"/>
+  
+  <p align="center"> <img src="https://pixelsafari.neocities.org/misc/minibutton/supernatural/dark/freak.gif"> <img src="https://pixelsafari.neocities.org/misc/minibutton/animal/bunny4.gif"> <img src="https://pixelsafari.neocities.org/misc/minibutton/personality/obsessed.gif"> <img src="https://pixelsafari.neocities.org/misc/minibutton/personality/love/loveme.gif"> <img src="https://pixelsafari.neocities.org/misc/minibutton/personality/love/mwah.gif"> <img src="https://pixelsafari.neocities.org/misc/minibutton/fashion/jiraikei.gif"> 
+  
  <p align="center"> She sought death on a queen-sized bed</p>
  <p align="center"> <img src="https://media1.tenor.com/m/o8AnLMn_HuwAAAAd/aventurine-aventurine-waveflair-hsr-honkaistarrail.gif"width="550" height="300"/> </p>
  <p align="center"> And he had said, "Darling, your looks can kill, so now you're dead."</p>
- <p align="center"> <img src="https://pixelsafari.neocities.org/stamps/aesthetic/red/bloodyheart.gif">  <img src="https://magma.com/shared/5Lf8nP1mD-VxuEt64ZSNsw"/> <img src="https://external-media.spacehey.net/media/s5jFGlnX-NuoKh4XvAJlGJF_QJs3N1ug0RlJqdQaOAYU=/https://64.media.tumblr.com/eb4a12d9e40403cb0558d2f105d0a76f/22f12c80d6958c3d-52/s100x200/13f3f3348b71c58b64216e975b9698e867fcf0ca.gifv"> <img src="https://pixelsafari.neocities.org/stamps/cute/sugar.png"> <img src="https://pixelsafari.neocities.org/stamps/quotes/imsuicidal.png"> 
+ <p align="center"> <img src="https://files.catbox.moe/06y3v3.png">  <img src="https://magma.com/shared/5Lf8nP1mD-VxuEt64ZSNsw"/> <img src="https://external-media.spacehey.net/media/s5jFGlnX-NuoKh4XvAJlGJF_QJs3N1ug0RlJqdQaOAYU=/https://64.media.tumblr.com/eb4a12d9e40403cb0558d2f105d0a76f/22f12c80d6958c3d-52/s100x200/13f3f3348b71c58b64216e975b9698e867fcf0ca.gifv"> <img src="https://64.media.tumblr.com/39ed31f77c3302cf073bdd12fa4c3283/4f10d0930956c5da-f8/s100x200/387d12b104af7e20fe1f8024c7824e77bc056fc5.gifv"> <img src="https://wilardo.crd.co/assets/images/gallery08/d00fdab2_original.png?v=c0a0770b"> 
 
 <p align="center">　　　</p>
 <img align="left" src="https://i.postimg.cc/Z5XMw0zt/av-git2.png"> <img align="right" src="https://i.postimg.cc/4NSb9GS8/wawen5.png" </p>
@@ -38,3 +40,7 @@
 <img align="center" src="https://i.postimg.cc/HnnZZdJ3/gh1.png"><img align="center" src="https://i.postimg.cc/Bb8KW2d1/gh4.png"><img align="center" src="https://i.postimg.cc/N0FDGC29/gh5.png">
 
 <p align="center">I love when you fail, ts make me happy ^_^</p>
+
+ <p align="center"> <img src="https://pixelsafari.neocities.org/stamps/aesthetic/blue/dead.jpg"> <img src="https://pixelsafari.neocities.org/stamps/quotes/2016.png"> <img src="https://pixelsafari.neocities.org/stamps/quotes/seeyousoonbro.png"> <img src="https://pixelsafari.neocities.org/stamps/quotes/imgonnaeatyou.jpg"> <img src="https://pixelsafari.neocities.org/stamps/quotes/imsuicidal.png"> 
+
+<p align="center"> <img src="https://pixelsafari.neocities.org/dividers/pinkskulls.gif"</p> 
