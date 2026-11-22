@@ -6,7 +6,7 @@
  <p align="center"> ꜱʜᴇ ꜱᴏᴜɢʜᴛ ᴅᴇᴀᴛʜ ᴏɴ ᴀ Qᴜᴇᴇɴ-ꜱɪᴢᴇᴅ ʙᴇᴅ</p>
  <p align="center"> <img src="https://media1.tenor.com/m/o8AnLMn_HuwAAAAd/aventurine-aventurine-waveflair-hsr-honkaistarrail.gif"width="550" height="300"/> </p>
  <p align="center"> ᴀɴᴅ ʜᴇ ʜᴀᴅ ꜱᴀɪᴅ, "ᴅᴀʀʟɪɴɢ, ʏᴏᴜʀ ʟᴏᴏᴋꜱ ᴄᴀɴ ᴋɪʟʟ, ꜱᴏ ɴᴏᴡ ʏᴏᴜ'ʀᴇ ᴅᴇᴀᴅ."</p>
- <p align="center"> <img src="https://files.catbox.moe/06y3v3.png">  <img src="https://magma.com/shared/5Lf8nP1mD-VxuEt64ZSNsw"/> <img src="https://external-media.spacehey.net/media/s5jFGlnX-NuoKh4XvAJlGJF_QJs3N1ug0RlJqdQaOAYU=/https://64.media.tumblr.com/eb4a12d9e40403cb0558d2f105d0a76f/22f12c80d6958c3d-52/s100x200/13f3f3348b71c58b64216e975b9698e867fcf0ca.gifv"> <img src="https://64.media.tumblr.com/39ed31f77c3302cf073bdd12fa4c3283/4f10d0930956c5da-f8/s100x200/387d12b104af7e20fe1f8024c7824e77bc056fc5.gifv"> <img src="https://wilardo.crd.co/assets/images/gallery08/d00fdab2_original.png?v=c0a0770b"> 
+ <p align="center"> <img src="https://64.media.tumblr.com/839f6cd13168341e62e9beaf45782e4a/7e100f44603c3879-87/s100x200/2f529229e7976fc08064a93625eff9b892839eaa.pnj">  <img src="https://magma.com/shared/5Lf8nP1mD-VxuEt64ZSNsw"/> <img src="https://external-media.spacehey.net/media/s5jFGlnX-NuoKh4XvAJlGJF_QJs3N1ug0RlJqdQaOAYU=/https://64.media.tumblr.com/eb4a12d9e40403cb0558d2f105d0a76f/22f12c80d6958c3d-52/s100x200/13f3f3348b71c58b64216e975b9698e867fcf0ca.gifv"> <img src="https://64.media.tumblr.com/26adf29fa40aaa6a8914db4c6de32878/649623db4429fc7e-2f/s100x200/82f23a184c31006829abf89e2435feab59bbb86e.pnj"> <img src="https://64.media.tumblr.com/a152386585007ce82cbd0a2fc2b642b3/e87ab8024ca84dde-c3/s100x200/339fee7508c6835cf18af0ffcc2958f8a924fce1.pnj"> 
 
 <p align="center">　　　</p>
 <img align="left" src="https://i.postimg.cc/Z5XMw0zt/av-git2.png"> <img align="right" src="https://i.postimg.cc/4NSb9GS8/wawen5.png" </p>
@@ -33,7 +33,7 @@
  <p align="center"> <img src="https://media1.tenor.com/m/ijkW1jCLxkMAAAAd/aventurine-aventurine-waveflair.gif" width="550" height="300"/></p>
   <p align="center"> <img src="https://pixelsafari.neocities.org/dividers/iloveyou.gif"</p> 
 
-  <p align="center"> <img src="https://pixelsafari.neocities.org/stamps/more/panic.png"> <img src="https://pixelsafari.neocities.org/stamps/quotes/dontgetattached.gif"> <img src="https://pixelsafari.neocities.org/stamps/nononono.gif"> <img src="https://pixelsafari.neocities.org/stamps/quotes/howifeel.gif"> <img src="https://pixelsafari.neocities.org/stamps/more/aaaaaa.gif"> 
+  <p align="center"> <img src="https://64.media.tumblr.com/95ca700dcf6dc6d2e9aa8f0ae552658e/e87ab8024ca84dde-eb/s100x200/702273cbdc6e33be96fd48551820572fda5c65cd.pnj"> <img src="https://pixelsafari.neocities.org/stamps/quotes/dontgetattached.gif"> <img src="https://64.media.tumblr.com/82b55adab1be56792c5286bb7a798af9/51e2a4c7ce7d097c-7e/s100x200/83c658979c3f17b2a8cef2c46efd325649788c54.pnj"> <img src="https://64.media.tumblr.com/9624f65506f7d718925516eb237a7e66/23cd2d8abd55e097-d7/s100x200/818c31df6d56e7c60b99b142819518e37f998a87.pnj"> <img src="https://pixelsafari.neocities.org/stamps/more/aaaaaa.gif"> 
 
 <p align="center">ɪ ʜᴜʀᴛ ᴍʏꜱᴇʟꜰ ᴛᴏᴅᴀʏ // ᴛᴏ ꜱᴇᴇ ɪꜰ ɪ ꜱᴛɪʟʟ ꜰᴇᴇʟ</p>
 
@@ -43,4 +43,4 @@
 
  <p align="center"> <img src="https://pixelsafari.neocities.org/stamps/aesthetic/blue/dead.jpg"> <img src="https://pixelsafari.neocities.org/stamps/quotes/2016.png"> <img src="https://pixelsafari.neocities.org/stamps/quotes/seeyousoonbro.png"> <img src="https://pixelsafari.neocities.org/stamps/quotes/imgonnaeatyou.jpg"> <img src="https://pixelsafari.neocities.org/stamps/quotes/imsuicidal.png"> 
 
-<p align="center"> <img src="https://pixelsafari.neocities.org/dividers/pinkskulls.gif"</p> 
+<p align="center"> <img src="https://64.media.tumblr.com/741b2578349598e9c32552396f429fde/d29e9ba464b39778-50/s400x600/4b96a8359b4164c7450a07c01782be155b477534.gifv"</p> 
