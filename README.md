@@ -12,5 +12,5 @@
   <p align="right"> '𝙮𝙚𝙪𝙡𝙚 - 𝙎𝙖𝙞𝙠𝙤' </p>
  <p align="center"> <img src="https://64.media.tumblr.com/95ca700dcf6dc6d2e9aa8f0ae552658e/e87ab8024ca84dde-eb/s100x200/702273cbdc6e33be96fd48551820572fda5c65cd.pnj"> <img src="https://64.media.tumblr.com/9624f65506f7d718925516eb237a7e66/23cd2d8abd55e097-d7/s100x200/818c31df6d56e7c60b99b142819518e37f998a87.pnj"> <img src="https://64.media.tumblr.com/d8d17bde1982d75663c358c223a66471/e8a889f7663289e4-37/s100x200/00bbb8f4de1932f84afa59c87fb458cba795b16d.pnj">  <img src="https://64.media.tumblr.com/26adf29fa40aaa6a8914db4c6de32878/649623db4429fc7e-2f/s100x200/82f23a184c31006829abf89e2435feab59bbb86e.pnj"> <img src="https://64.media.tumblr.com/a152386585007ce82cbd0a2fc2b642b3/e87ab8024ca84dde-c3/s100x200/339fee7508c6835cf18af0ffcc2958f8a924fce1.pnj"> 
 
-|<img src="https://64.media.tumblr.com/b16c2b369615797eaf2d1270b1725e87/d84c7d3c338c9220-b7/s400x600/30d1ee9410d6139ba72a65ed2382119fcadb766f.jpg"> | <p align="center"> <img src="https://64.media.tumblr.com/2cd1e52ba0eaab094c316c9f0f8c0b2e/d3733f93471281b6-c4/s400x600/44c4a360607843c08a0311da91d7d8f04a706237.gifv"> </p> |
-|---|---|
+|<img src="https://iili.io/ofIm4eV.png" width="220" height="220"> | <img src="https://i.pinimg.com/736x/70/be/e0/70bee0672c84cda49b5e0dc22f59fc78.jpg" width="220" height="220"> | <img src="https://i.pinimg.com/736x/ba/ba/ce/babace42dfb7a934963cbdb0cca6af03.jpg" width="220" height="220"> |
+|---|---|---|
