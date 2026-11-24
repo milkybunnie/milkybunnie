@@ -1,11 +1,9 @@
 | <img src="https://64.media.tumblr.com/a5d5e0ab2e031ec21e6b203196fd9c5a/56a556e09853e6c8-5c/s400x600/02a5a49c4039c6692b717854412da1ced52ba909.pnj" width="350" height="250" /> | <p align="center"> <img src="https://64.media.tumblr.com/39299e18315d7606d60ccc833895407b/47b631209d12b4f1-cf/s400x600/7c4ddaad77dcef08c5ade21675424d56b43abf99.pnj"> </p> <p align="center"> Left with a trace of all that was and all that could have been. </p> <p align="center"> All that could have been. All that could have been. <img src="https://64.media.tumblr.com/6eda7170506441ee2fef42c239bf2d3a/40a4e6377bd87545-6f/s100x200/ed3ab9fa394b299417d669d49305ee88174aeb0a.jpg" width="70" height="70"> </p> <p align="center"> <img src="https://64.media.tumblr.com/16d87529916ed511d9789e49d4f7e6ba/67254761eb77797e-ca/s250x400/4ad815f0181b0a7d9b1bd56b44206f106ab09ab6.gifv" width="120" height="70" /> <img src="https://64.media.tumblr.com/e261f53c14a2bbe8ad7822b5eb7d1dda/67254761eb77797e-6d/s250x400/c588f5b1f79a1934039997dde0c52ac40b30419b.gifv" width="120" height="70" /> |
 |---|-----|
 
-<img align="left" src="https://64.media.tumblr.com/37a89fe76423f9b8271f363dc6a8622e/714f39757fb8b3e2-76/s400x600/fa726a1e5b2edffe288d1b6fa3f972ef6b1612e3.jpg" width="270" height="300"> <img align="right" src="https://64.media.tumblr.com/5554bfef255d5b63a4f7ede921e6e7e6/7aeefd3a8c8dc9f5-22/s250x400/f7b0c216d51f64026e04d2ebe529b7dee5b1da1b.pnj">
-
-<p align="left"><sup> <div align="center">
+<img align="left" src="https://64.media.tumblr.com/37a89fe76423f9b8271f363dc6a8622e/714f39757fb8b3e2-76/s400x600/fa726a1e5b2edffe288d1b6fa3f972ef6b1612e3.jpg" width="270" height="300"> <img align="right" src="https://64.media.tumblr.com/5554bfef255d5b63a4f7ede921e6e7e6/7aeefd3a8c8dc9f5-22/s250x400/f7b0c216d51f64026e04d2ebe529b7dee5b1da1b.pnj"> <div align="center">
   
-  ![](https://komarev.com/ghpvc/?username=milkybunnie&color=005BFF&label=ERROR404&base=2200)</sup></p>
+  ![](https://komarev.com/ghpvc/?username=milkybunnie&color=005BFF&label=ERROR404&base=2200)</sup>
  <p align="center"> <img src="https://64.media.tumblr.com/acac3f74a5bd29ac4d71a15bf99f2380/6d3849bfe5555df5-b2/s100x200/d24f352c18c741d679857bde908b6d5fc83ac380.pnj"> <img src="https://64.media.tumblr.com/45b4547f106f537332bc80c5f885f19c/676e28688f4bed68-8c/s100x200/ce3342f7797b831c60dbfd492f2cd94d5f48419c.gifv"> 
    <p align="center"> <img src="https://pixelsafari.neocities.org/misc/userbox/scrappydoo.jpg">  
 
