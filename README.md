@@ -6,7 +6,8 @@
 <p align="left"><sup> <div align="center">
   
   ![](https://komarev.com/ghpvc/?username=milkybunnie&color=005BFF&label=ERROR404&base=2200)</sup></p>
- <p align="center"> <img src="https://64.media.tumblr.com/acac3f74a5bd29ac4d71a15bf99f2380/6d3849bfe5555df5-b2/s100x200/d24f352c18c741d679857bde908b6d5fc83ac380.pnj"> <img src="https://64.media.tumblr.com/45b4547f106f537332bc80c5f885f19c/676e28688f4bed68-8c/s100x200/ce3342f7797b831c60dbfd492f2cd94d5f48419c.gifv"> <img src="https://pixelsafari.neocities.org/misc/userbox/scrappydoo.jpg">  
+ <p align="center"> <img src="https://64.media.tumblr.com/acac3f74a5bd29ac4d71a15bf99f2380/6d3849bfe5555df5-b2/s100x200/d24f352c18c741d679857bde908b6d5fc83ac380.pnj"> <img src="https://64.media.tumblr.com/45b4547f106f537332bc80c5f885f19c/676e28688f4bed68-8c/s100x200/ce3342f7797b831c60dbfd492f2cd94d5f48419c.gifv"> 
+   <p align="center"> <img src="https://pixelsafari.neocities.org/misc/userbox/scrappydoo.jpg">  
 
  <p align="left"> разбери меня на части, на осколки все мечты</p>
  <p align="left"> я отдам себя с запасом, хватит аж до тошноты</p>
