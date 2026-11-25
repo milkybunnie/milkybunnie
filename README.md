@@ -12,13 +12,13 @@
 <p align="center"> <img src="https://64.media.tumblr.com/c64d2a76d1a3b311cac3803696c51cba/518510f11618413c-a7/s540x810/6fd1509c7bd37737ad0062bc65d1530cb14a9030.gifv">
 
 <img align="right" src="https://iili.io/ofema8N.png"> <p align="left"> <p align="center"> <img src="https://64.media.tumblr.com/3e9581e3392d42e51e603ea6769881d7/3cd168a146e12cbe-e1/s250x400/913cc40c2a0579999c1e72ef3809a838e1512b41.pnj" width="99" height="57"><img src="https://64.media.tumblr.com/a152386585007ce82cbd0a2fc2b642b3/e87ab8024ca84dde-c3/s100x200/339fee7508c6835cf18af0ffcc2958f8a924fce1.pnj"><img src="https://64.media.tumblr.com/26adf29fa40aaa6a8914db4c6de32878/649623db4429fc7e-2f/s100x200/82f23a184c31006829abf89e2435feab59bbb86e.pnj"> </p>
-<p align="left"> $5 I delete my last post</p>
-<p align="left"> $15 I delete any post </p>
-<p align="left"> $50 I deactivate for a week</p>
-<p align="left"> <img src="https://64.media.tumblr.com/fcb89b3e34977ffb1043bcb86d25a374/7e69345befe90b57-d3/s250x400/919bd9d8a1d43528f73fc6fd5401f65e04da083e.gifv"><img src="https://64.media.tumblr.com/5beb245f466b5731a5e8832d06629789/7e69345befe90b57-df/s250x400/9cd273ddefaf831c9695a5454d7d9b5ce2d70b3e.gifv" </p>
-<p align="left"> $200 I delete my account</p>
-<p align="left"> $1000 I kms </p>
 <p align="left"> WIP </p>
+<p align="left"> WIP </p>
+<p align="left"> WIP </p>
+<p align="center"> <img src="https://64.media.tumblr.com/fcb89b3e34977ffb1043bcb86d25a374/7e69345befe90b57-d3/s250x400/919bd9d8a1d43528f73fc6fd5401f65e04da083e.gifv"><img src="https://64.media.tumblr.com/5beb245f466b5731a5e8832d06629789/7e69345befe90b57-df/s250x400/9cd273ddefaf831c9695a5454d7d9b5ce2d70b3e.gifv" </p>
+<p align="right">  𓈒 𐔌 ᴧᴇзʙиᴇʍ ᴨо ᴛᴇᴧу ᴨᴩояʙᴧᴇниᴇ ᴧюбʙи </p>
+<p align="right"> ᴨᴩоɯу оᴄᴛᴀньᴄя чᴇᴧоʙᴇᴋоʍ </p>
+<p align="right"> ᴋоᴛоᴩый ʍᴇня убиᴧ ♡゙  ꒱</p>
 <p align="center"> <img src="https://64.media.tumblr.com/883b6c68002ab97d8a23a221a747c8b0/e9e363a29e411440-8b/s250x400/261ec275b37e18cc7842ad5880e896cc2d2ca8da.pnj" </p>
 <p align="right"> ᴍʏ ᴀʀᴛ ʙᴛᴡ →</p>
 <p align="center"> <img src="https://64.media.tumblr.com/67bda469a6cb78d56f47689debfa6dcf/518510f11618413c-98/s540x810/44c15096750df95fa9d391a7a690c6c85d8d2692.gifv">
