@@ -25,7 +25,7 @@
   
 <img align="left" src="https://64.media.tumblr.com/fc8b1490d7e2e9c2d0de0c3b929677d5/315c86555926890e-f5/s400x600/7c69cb549e1b7ece3b7f50e477335052ec51f3bf.gifv"><p align="center">　　　</p>
 <p align="left">ー 𝐼 𝒸𝒶𝓃 𝒽𝑒𝒶𝓇 𝓎𝑜𝓊𝓇 𝓌𝑜𝓇𝒹𝓈 𝒷𝓇𝑒𝒶𝓀𝒾𝓃𝑔 𝒹𝑜𝓌𝓃 𝓂𝓎 𝒸𝑜𝓇𝑒 </p>
-<p align="left"> 　　　𝐼 𝓉𝒽𝒾𝓃𝓀 𝒶𝒷𝑜𝓊𝓉 𝓎𝑜𝓊 𝑒𝓋𝑒𝓇𝓎 𝒹𝒶𝓎 𝒶𝓉 𝓁𝑒𝒶𝓈𝓉 𝒶 𝒽𝓊𝓃𝒹𝓇𝑒𝒹 𝓉𝒾𝓂𝑒𝓈 𝑜𝓇 𝓂𝑜𝓇𝑒.ᐟ ♡ ࣪  ࣪  ࣪ </p>
+<p align="left"> 　　　𝐼 𝓉𝒽𝒾𝓃𝓀 𝒶𝒷𝑜𝓊𝓉 𝓎𝑜𝓊 𝑒𝓋𝑒𝓇𝓎 𝒹𝒶𝓎 𝒶𝓉 𝓁𝑒𝒶𝓈𝓉 𝒶 𝒽𝓊𝓃𝒹𝓇𝑒𝒹 𝓉𝒾𝓂𝑒𝓈 𝑜𝓇 𝓂𝑜𝓇𝑒.ᐟ ♡. . . </p>
 <p align="left"> WIP </p>
 <p align="left"> WIP </p>
 <p align="left"> WIP </p>
