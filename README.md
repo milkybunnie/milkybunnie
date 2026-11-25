@@ -1,4 +1,4 @@
-<p align="center"> <img src="https://pixelsafari.neocities.org/hangers/other/pink/letter.gif"> <img src="https://64.media.tumblr.com/813616c57af7e643245150aeddf0c713/0832be653df620d8-dc/s500x750/9eb536c698f5bb83cd21e04fab0ed7307256b0d5.pnj"> <img src="https://pixelsafari.neocities.org/hangers/other/pink/letter.gif">
+<p align="center"><img src="https://64.media.tumblr.com/d86da0ec073da0ab06bf54c0bdd2910c/518510f11618413c-7f/s540x810/a6a879075b6b11635e8e2bef15887d7df53c4b24.pnj">
 <div align="center">
   
   ![](https://komarev.com/ghpvc/?username=milkybunnie&color=FCAFCE&label=stalkers->&base=2200)</sup>
