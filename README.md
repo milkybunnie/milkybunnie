@@ -15,10 +15,23 @@
 <p align="left"> $5 I delete my last post</p>
 <p align="left"> $15 I delete any post </p>
 <p align="left"> $50 I deactivate for a week</p>
-<p align="left"> <img src="https://64.media.tumblr.com/fcb89b3e34977ffb1043bcb86d25a374/7e69345befe90b57-d3/s250x400/919bd9d8a1d43528f73fc6fd5401f65e04da083e.gifv"> <img src="https://64.media.tumblr.com/5beb245f466b5731a5e8832d06629789/7e69345befe90b57-df/s250x400/9cd273ddefaf831c9695a5454d7d9b5ce2d70b3e.gifv" </p>
+<p align="left"> <img src="https://64.media.tumblr.com/fcb89b3e34977ffb1043bcb86d25a374/7e69345befe90b57-d3/s250x400/919bd9d8a1d43528f73fc6fd5401f65e04da083e.gifv"><img src="https://64.media.tumblr.com/5beb245f466b5731a5e8832d06629789/7e69345befe90b57-df/s250x400/9cd273ddefaf831c9695a5454d7d9b5ce2d70b3e.gifv" </p>
 <p align="left"> $200 I delete my account</p>
 <p align="left"> $1000 I kms </p>
 <p align="left"> WIP </p>
-<p align="left"> <img src="https://64.media.tumblr.com/883b6c68002ab97d8a23a221a747c8b0/e9e363a29e411440-8b/s250x400/261ec275b37e18cc7842ad5880e896cc2d2ca8da.pnj" </p>
+<p align="center"> <img src="https://64.media.tumblr.com/883b6c68002ab97d8a23a221a747c8b0/e9e363a29e411440-8b/s250x400/261ec275b37e18cc7842ad5880e896cc2d2ca8da.pnj" </p>
 <p align="right"> ᴍʏ ᴀʀᴛ ʙᴛᴡ </p>
+<p align="center"> <img src="https://64.media.tumblr.com/67bda469a6cb78d56f47689debfa6dcf/518510f11618413c-98/s540x810/44c15096750df95fa9d391a7a690c6c85d8d2692.gifv">
+  
+<img align="left" src="https://64.media.tumblr.com/fc8b1490d7e2e9c2d0de0c3b929677d5/315c86555926890e-f5/s400x600/7c69cb549e1b7ece3b7f50e477335052ec51f3bf.gifv"><p align="center">　　　</p>
+<p align="left"> ︩︪ ׅ ⠀ꞌꞋ ࣪𝐼 𝒸𝒶𝓃 𝒽𝑒𝒶𝓇 𝓎𝑜𝓊𝓇 𝓌𝑜𝓇𝒹𝓈 𝒷𝓇𝑒𝒶𝓀𝒾𝓃𝑔 𝒹𝑜𝓌𝓃 𝓂𝓎 𝒸𝑜𝓇𝑒 </p>
+<p align="left"> 　　　𝐼 𝓉𝒽𝒾𝓃𝓀 𝒶𝒷𝑜𝓊𝓉 𝓎𝑜𝓊 𝑒𝓋𝑒𝓇𝓎 𝒹𝒶𝓎 𝒶𝓉 𝓁𝑒𝒶𝓈𝓉 𝒶 𝒽𝓊𝓃𝒹𝓇𝑒𝒹 𝓉𝒾𝓂𝑒𝓈 𝑜𝓇 𝓂𝑜𝓇𝑒!  ֯     ׅ  ⋆ </p>
+<p align="left"> WIP </p>
+<p align="left"> WIP </p>
+<p align="left"> WIP </p>
+<p align="left"> WIP </p>
+<p align="left"> WIP </p>
+<p align="right"> <img src="https://64.media.tumblr.com/21bccd1e6262711c17b751a7c7e1227f/e0ef618f0b29dda5-83/s250x400/b5690b77addb00a73f9edf3b9f3ccc484bea6cb9.pnj">
+<p align="center">　　　</p>
+
 <p align="center"> <img src="https://64.media.tumblr.com/5f166eee07b6d46be8373dab640dbadf/981cee58b1860d43-de/s100x200/61c01f3b51a553382e4906d3427a9e24f713bc3e.pnj">
