@@ -11,7 +11,7 @@
 
 <p align="center"> <img src="https://64.media.tumblr.com/c64d2a76d1a3b311cac3803696c51cba/518510f11618413c-a7/s540x810/6fd1509c7bd37737ad0062bc65d1530cb14a9030.gifv">
 
-<img align="right" src="https://iili.io/ofema8N.png"> <p align="left"> <p align="center"> <img src="https://64.media.tumblr.com/95ca700dcf6dc6d2e9aa8f0ae552658e/e87ab8024ca84dde-eb/s100x200/702273cbdc6e33be96fd48551820572fda5c65cd.pnj"><img src="https://64.media.tumblr.com/4def4c7831f1aaaa77593640d35d15ea/6a7e6ec4d9e5fcf1-72/s100x200/04f3514fa7316a9b773011a3018c96e33767729e.pnj"><img src="https://64.media.tumblr.com/a152386585007ce82cbd0a2fc2b642b3/e87ab8024ca84dde-c3/s100x200/339fee7508c6835cf18af0ffcc2958f8a924fce1.pnj"><img src="https://64.media.tumblr.com/26adf29fa40aaa6a8914db4c6de32878/649623db4429fc7e-2f/s100x200/82f23a184c31006829abf89e2435feab59bbb86e.pnj"> </p>
+<img align="right" src="https://iili.io/ofema8N.png"> <p align="left"> <p align="center"> <img src="https://64.media.tumblr.com/4def4c7831f1aaaa77593640d35d15ea/6a7e6ec4d9e5fcf1-72/s100x200/04f3514fa7316a9b773011a3018c96e33767729e.pnj"><img src="https://64.media.tumblr.com/a152386585007ce82cbd0a2fc2b642b3/e87ab8024ca84dde-c3/s100x200/339fee7508c6835cf18af0ffcc2958f8a924fce1.pnj"><img src="https://64.media.tumblr.com/26adf29fa40aaa6a8914db4c6de32878/649623db4429fc7e-2f/s100x200/82f23a184c31006829abf89e2435feab59bbb86e.pnj"> </p>
 <p align="left"> $5 I delete my last post</p>
 <p align="left"> $15 I delete any post </p>
 <p align="left"> $50 I deactivate for a week</p>
