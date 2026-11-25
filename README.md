@@ -20,7 +20,7 @@
 <p align="left"> $1000 I kms </p>
 <p align="left"> WIP </p>
 <p align="center"> <img src="https://64.media.tumblr.com/883b6c68002ab97d8a23a221a747c8b0/e9e363a29e411440-8b/s250x400/261ec275b37e18cc7842ad5880e896cc2d2ca8da.pnj" </p>
-<p align="right"> ᴍʏ ᴀʀᴛ ʙᴛᴡ </p>
+<p align="right"> ᴍʏ ᴀʀᴛ ʙᴛᴡ →</p>
 <p align="center"> <img src="https://64.media.tumblr.com/67bda469a6cb78d56f47689debfa6dcf/518510f11618413c-98/s540x810/44c15096750df95fa9d391a7a690c6c85d8d2692.gifv">
   
 <img align="left" src="https://64.media.tumblr.com/fc8b1490d7e2e9c2d0de0c3b929677d5/315c86555926890e-f5/s400x600/7c69cb549e1b7ece3b7f50e477335052ec51f3bf.gifv"><p align="center">　　　</p>
@@ -32,6 +32,6 @@
 <p align="left"> WIP </p>
 <p align="left"> WIP </p>
 <p align="right"> <img src="https://64.media.tumblr.com/21bccd1e6262711c17b751a7c7e1227f/e0ef618f0b29dda5-83/s250x400/b5690b77addb00a73f9edf3b9f3ccc484bea6cb9.pnj">
-<p align="center">　　　</p>
-
+<p align="center"> <img src="https://64.media.tumblr.com/792b1b9c144d6c45b16d88a61fc4867b/d64cd6e99fc39da6-5d/s400x600/10d410e43edc22b6107ac49c288fea0ea7461bf2.jpg">
+<p align="center"> <img src="https://64.media.tumblr.com/097742f8f6850110a77eac2686949786/e0ef618f0b29dda5-21/s250x400/298187d35d5121caf75b2135d9d25d739cd77a92.pnj"> <img src="https://i.pinimg.com/736x/97/71/2e/97712ed18424bbc187f4a137685d1e48.jpg"> </p>
 <p align="center"> <img src="https://64.media.tumblr.com/5f166eee07b6d46be8373dab640dbadf/981cee58b1860d43-de/s100x200/61c01f3b51a553382e4906d3427a9e24f713bc3e.pnj">
