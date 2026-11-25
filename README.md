@@ -20,4 +20,4 @@
 <p align="left"> $1000 I kms </p>
 <p align="left"> WIP </p>
 <p align="left"> <img src="https://64.media.tumblr.com/883b6c68002ab97d8a23a221a747c8b0/e9e363a29e411440-8b/s250x400/261ec275b37e18cc7842ad5880e896cc2d2ca8da.pnj" </p>
-<p align="right"> ᴍʏ ᴀʀᴛ ʙᴛᴡ → </p>
+<p align="right"> ᴍʏ ᴀʀᴛ ʙᴛᴡ </p>
