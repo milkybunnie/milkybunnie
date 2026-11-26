@@ -32,7 +32,6 @@
 <p align="left"> 　差し出してしまうの </p>
 <p align="left"> 　　　　　　　　　分かるでしょ? </p>
 <p align="right"> <img src="https://64.media.tumblr.com/21bccd1e6262711c17b751a7c7e1227f/e0ef618f0b29dda5-83/s250x400/b5690b77addb00a73f9edf3b9f3ccc484bea6cb9.pnj">
-  <p align="center">　　　</p>
 <p align="center"> <img src="https://64.media.tumblr.com/673575c17f0cb536a780f1f9a7ab92b2/dd9a4b115d17ecb1-f2/s540x810/0dbdbf00a94b81a37acbb26af0987d69507349a7.pnj">
 <p align="center"> <img src="https://64.media.tumblr.com/cc93d3d4cf6fc7ac7eb69e78f7b3ab08/c5dbc3103286e1e7-49/s100x200/db5c08c225b1baded2b7f5693e47ce8b3ad9b705.pnj">
 <p align="center"> <img src="https://64.media.tumblr.com/5f166eee07b6d46be8373dab640dbadf/981cee58b1860d43-de/s100x200/61c01f3b51a553382e4906d3427a9e24f713bc3e.pnj">
