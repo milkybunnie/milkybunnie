@@ -12,8 +12,8 @@
 <p align="center"> <img src="https://64.media.tumblr.com/c64d2a76d1a3b311cac3803696c51cba/518510f11618413c-a7/s540x810/6fd1509c7bd37737ad0062bc65d1530cb14a9030.gifv">
 
 <img align="right" src="https://iili.io/ofema8N.png"> <p align="left"> <p align="center"> <img src="https://64.media.tumblr.com/ca1a577f12886efe80d73bcad0a1f36e/4140452c4d756402-48/s100x200/2b8f90e080708ee873f88fe6dc2d48a9175e681a.pnj"><img src="https://64.media.tumblr.com/5d2ed433da869acaedfb8028d3b4c00f/5db40e837233ec20-b6/s100x200/f54442c2e864fe2745cff355f7021588ef3fc93e.gifv"><img src="https://64.media.tumblr.com/123d892275bc29a871d6d2e81f11f54d/cfc34ac72e466b8c-db/s100x200/6175cbcf713c8b847af3915e4c0bf59f7bccd681.pnj"> </p>
-<p align="left"> ⭑ ╭ ︰WIP </p>
-<p align="left"> WIP ៸៸ 𝂅 ࣪</p>
+<p align="left">⊹　　𝐚𝐝𝐮𝐥𝐭 𝐰𝐢𝐭𝐡 𝐚 𝐉*𝐁 𝐛𝐭𝐰 　。ᚐ꒱ა </p>
+<p align="left"> ₍ ♡ ₎　𝐩𝐥𝐬 𝐡𝐢𝐝𝐞 𝐦𝐞 𝐢𝐟 𝐲𝐨𝐮'𝐫𝐞 𝐮𝐧𝐜𝐨𝐦𝐟𝐨𝐫𝐭𝐚𝐛𝐥𝐞!　៸៸ 𝂅 ࣪</p>
 <p align="center"> <img src="https://64.media.tumblr.com/fcb89b3e34977ffb1043bcb86d25a374/7e69345befe90b57-d3/s250x400/919bd9d8a1d43528f73fc6fd5401f65e04da083e.gifv"><img src="https://64.media.tumblr.com/5beb245f466b5731a5e8832d06629789/7e69345befe90b57-df/s250x400/9cd273ddefaf831c9695a5454d7d9b5ce2d70b3e.gifv" </p>
 <p align="right">  𓈒 𐔌 ρᥲɜδᥱρᥙ ʍᥱня нᥲ чᥲᥴᴛᥙ </p>
 <p align="right"> ᥴᥱρдцᥱ, ᧘ᥱᴦκᥙᥱ, ᴦ᧘ᥲɜᥲ </p>
