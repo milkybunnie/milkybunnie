@@ -27,10 +27,10 @@
 <p align="left">ー 𝐼 𝒸𝒶𝓃 𝒽𝑒𝒶𝓇 𝓎𝑜𝓊𝓇 𝓌𝑜𝓇𝒹𝓈 𝒷𝓇𝑒𝒶𝓀𝒾𝓃𝑔 𝒹𝑜𝓌𝓃 𝓂𝓎 𝒸𝑜𝓇𝑒 </p>
 <p align="left"> 　　　𝐼 𝓉𝒽𝒾𝓃𝓀 𝒶𝒷𝑜𝓊𝓉 𝓎𝑜𝓊 𝑒𝓋𝑒𝓇𝓎 𝒹𝒶𝓎 𝒶𝓉 𝓁𝑒𝒶𝓈𝓉 𝒶 𝒽𝓊𝓃𝒹𝓇𝑒𝒹 𝓉𝒾𝓂𝑒𝓈 𝑜𝓇 𝓂𝑜𝓇𝑒.ᐟ ♡. . . </p>
 <p align="center"> <img src="https://pixelsafari.neocities.org/dividers/heart/pink/lollipops.gif">
-<p align="cxe"> そんなつもりじゃない 笑えない </p>
-<p align="left"> ねえ 痛いとかも分からないでしょ？ </p>
-<p align="left"> 返せ 返せよほら </p>
-<p align="left"> アンタに愛は勿体無いだろ </p>
+<p align="left"> 　そんなつもりじゃない 笑えない </p>
+<p align="left"> 　　ねえ 痛いとかも分からないでしょ？ </p>
+<p align="left"> 　　　返せ 返せよほら </p>
+<p align="left"> 　　　　アンタに愛は勿体無いだろ </p>
 <p align="right"> <img src="https://64.media.tumblr.com/21bccd1e6262711c17b751a7c7e1227f/e0ef618f0b29dda5-83/s250x400/b5690b77addb00a73f9edf3b9f3ccc484bea6cb9.pnj">
   <p align="center">　　　</p>
 <p align="center"> <img src="https://64.media.tumblr.com/792b1b9c144d6c45b16d88a61fc4867b/d64cd6e99fc39da6-5d/s400x600/10d410e43edc22b6107ac49c288fea0ea7461bf2.jpg">
