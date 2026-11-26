@@ -27,10 +27,10 @@
 <p align="left">ー 𝐼 𝒸𝒶𝓃 𝒽𝑒𝒶𝓇 𝓎𝑜𝓊𝓇 𝓌𝑜𝓇𝒹𝓈 𝒷𝓇𝑒𝒶𝓀𝒾𝓃𝑔 𝒹𝑜𝓌𝓃 𝓂𝓎 𝒸𝑜𝓇𝑒 </p>
 <p align="left"> 　　　𝐼 𝓉𝒽𝒾𝓃𝓀 𝒶𝒷𝑜𝓊𝓉 𝓎𝑜𝓊 𝑒𝓋𝑒𝓇𝓎 𝒹𝒶𝓎 𝒶𝓉 𝓁𝑒𝒶𝓈𝓉 𝒶 𝒽𝓊𝓃𝒹𝓇𝑒𝒹 𝓉𝒾𝓂𝑒𝓈 𝑜𝓇 𝓂𝑜𝓇𝑒.ᐟ ♡. . . </p>
 <p align="center"> <img src="https://pixelsafari.neocities.org/dividers/heart/pink/lollipops.gif">
-<p align="left"> 　　でもアナタが望むのなら </p>
-<p align="left"> 　　　金 夢 今 この人生 </p>
-<p align="left"> 　差し出してしまうの </p>
-<p align="left"> 　　　　　　　　　分かるでしょ? </p>
+<p align="left"> 　　女心が震える様な </p>
+<p align="left"> 　　　アナタの仕草に堕ちるのさ </p>
+<p align="left"> 　まるで純なる愛の奴隷の様に </p>
+<p align="left"> 　　　　　　　　己を捧げて見せるのさ </p>
 <p align="right"> <img src="https://64.media.tumblr.com/21bccd1e6262711c17b751a7c7e1227f/e0ef618f0b29dda5-83/s250x400/b5690b77addb00a73f9edf3b9f3ccc484bea6cb9.pnj">
 <p align="center"> <img src="https://64.media.tumblr.com/673575c17f0cb536a780f1f9a7ab92b2/dd9a4b115d17ecb1-f2/s540x810/0dbdbf00a94b81a37acbb26af0987d69507349a7.pnj">
 <p align="center"> <img src="https://64.media.tumblr.com/cc93d3d4cf6fc7ac7eb69e78f7b3ab08/c5dbc3103286e1e7-49/s100x200/db5c08c225b1baded2b7f5693e47ce8b3ad9b705.pnj">
