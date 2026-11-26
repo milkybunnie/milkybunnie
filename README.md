@@ -29,8 +29,8 @@
 <p align="center"> <img src="https://pixelsafari.neocities.org/dividers/heart/pink/lollipops.gif">
 <p align="left"> 一緒に地獄へ参りましょう </p>
 <p align="left"> 　恋人ごっこでおどりゃんせ </p>
-<p align="left"> 　　猫お被りの化け物さん </p>
-<p align="left"> 　　　お氣に召すままに </p>
+<p align="left"> 　　　　猫お被りの化け物さん </p>
+<p align="left"> 　　　　　　　お氣に召すままに </p>
 <p align="right"> <img src="https://64.media.tumblr.com/21bccd1e6262711c17b751a7c7e1227f/e0ef618f0b29dda5-83/s250x400/b5690b77addb00a73f9edf3b9f3ccc484bea6cb9.pnj">
   <p align="center">　　　</p>
 <p align="center"> <img src="https://64.media.tumblr.com/792b1b9c144d6c45b16d88a61fc4867b/d64cd6e99fc39da6-5d/s400x600/10d410e43edc22b6107ac49c288fea0ea7461bf2.jpg">
