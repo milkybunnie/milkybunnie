@@ -16,9 +16,9 @@
 <p align="left"> WIP ៸៸ 𝂅 ࣪</p>
 <p align="center"> <img src="https://64.media.tumblr.com/fcb89b3e34977ffb1043bcb86d25a374/7e69345befe90b57-d3/s250x400/919bd9d8a1d43528f73fc6fd5401f65e04da083e.gifv"><img src="https://64.media.tumblr.com/5beb245f466b5731a5e8832d06629789/7e69345befe90b57-df/s250x400/9cd273ddefaf831c9695a5454d7d9b5ce2d70b3e.gifv" </p>
 <p align="right">  𓈒 𐔌 ρᥲɜδᥱρᥙ ʍᥱня нᥲ чᥲᥴᴛᥙ </p>
-<p align="right"> нᥲ ᧐ᥴκ᧐᧘κᥙ ʙᥴᥱ ʍᥱчᴛы </p>
-<p align="right"> я ᧐ᴛдᥲʍ ᥴᥱδя ᥴ ɜᥲᥰᥲᥴ᧐ʍ </p>
-<p align="right"> хʙᥲᴛᥙᴛ ᥲж д᧐ ᴛ᧐ɯн᧐ᴛы ♡゙  ꒱</p>
+<p align="right"> ᥴᥱρдцᥱ, ᧘ᥱᴦκᥙᥱ, ᴦ᧘ᥲɜᥲ </p>
+<p align="right"> ᥰуᥴᴛь ʙᥴᥱ δудᥱᴛ ʙ ᴛʙ᧐ᥱᥔ ʙ᧘ᥲᥴᴛᥙ </p>
+<p align="right"> ʙ ᴛʙ᧐ᥱᥔ ʙ᧘ᥲᥴᴛᥙ δуду я ♡゙  ꒱</p>
 <p align="center"> <img src="https://64.media.tumblr.com/883b6c68002ab97d8a23a221a747c8b0/e9e363a29e411440-8b/s250x400/261ec275b37e18cc7842ad5880e896cc2d2ca8da.pnj" </p>
 <p align="right"> ᴍʏ ᴀʀᴛ ʙᴛᴡ →</p>
 <p align="center"> <img src="https://64.media.tumblr.com/67bda469a6cb78d56f47689debfa6dcf/518510f11618413c-98/s540x810/44c15096750df95fa9d391a7a690c6c85d8d2692.gifv">
