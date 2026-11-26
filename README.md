@@ -12,9 +12,9 @@
 <p align="center"> <img src="https://64.media.tumblr.com/c64d2a76d1a3b311cac3803696c51cba/518510f11618413c-a7/s540x810/6fd1509c7bd37737ad0062bc65d1530cb14a9030.gifv">
 
 <img align="right" src="https://iili.io/ofema8N.png"> <p align="left"> <p align="center"> <img src="https://64.media.tumblr.com/3e9581e3392d42e51e603ea6769881d7/3cd168a146e12cbe-e1/s250x400/913cc40c2a0579999c1e72ef3809a838e1512b41.pnj" width="99" height="57"><img src="https://64.media.tumblr.com/a152386585007ce82cbd0a2fc2b642b3/e87ab8024ca84dde-c3/s100x200/339fee7508c6835cf18af0ffcc2958f8a924fce1.pnj"><img src="https://64.media.tumblr.com/26adf29fa40aaa6a8914db4c6de32878/649623db4429fc7e-2f/s100x200/82f23a184c31006829abf89e2435feab59bbb86e.pnj"> </p>
-<p align="left"> WIP </p>
-<p align="left"> WIP </p>
-<p align="left"> WIP </p>
+<p align="left"> ⭑ ╭ ︰чᴛобы ᴨоᴛоʍ нᴇ боᴧᴇᴧо </p>
+<p align="left"> ᴧучɯᴇ бы знᴀᴛь ϶ᴛо ᴄᴩᴀзу </p>
+<p align="left"> ᴛо, чᴛо ᴛы ᴧюбиɯь, ᴛᴇбя ᴄъᴇᴄᴛ ៸៸ 𝂅 ࣪</p>
 <p align="center"> <img src="https://64.media.tumblr.com/fcb89b3e34977ffb1043bcb86d25a374/7e69345befe90b57-d3/s250x400/919bd9d8a1d43528f73fc6fd5401f65e04da083e.gifv"><img src="https://64.media.tumblr.com/5beb245f466b5731a5e8832d06629789/7e69345befe90b57-df/s250x400/9cd273ddefaf831c9695a5454d7d9b5ce2d70b3e.gifv" </p>
 <p align="right">  𓈒 𐔌 ᴧᴇзʙиᴇʍ ᴨо ᴛᴇᴧу ᴨᴩояʙᴧᴇниᴇ ᴧюбʙи </p>
 <p align="right"> ᴨᴩоɯу оᴄᴛᴀньᴄя чᴇᴧоʙᴇᴋоʍ </p>
@@ -27,10 +27,10 @@
 <p align="left">ー 𝐼 𝒸𝒶𝓃 𝒽𝑒𝒶𝓇 𝓎𝑜𝓊𝓇 𝓌𝑜𝓇𝒹𝓈 𝒷𝓇𝑒𝒶𝓀𝒾𝓃𝑔 𝒹𝑜𝓌𝓃 𝓂𝓎 𝒸𝑜𝓇𝑒 </p>
 <p align="left"> 　　　𝐼 𝓉𝒽𝒾𝓃𝓀 𝒶𝒷𝑜𝓊𝓉 𝓎𝑜𝓊 𝑒𝓋𝑒𝓇𝓎 𝒹𝒶𝓎 𝒶𝓉 𝓁𝑒𝒶𝓈𝓉 𝒶 𝒽𝓊𝓃𝒹𝓇𝑒𝒹 𝓉𝒾𝓂𝑒𝓈 𝑜𝓇 𝓂𝑜𝓇𝑒.ᐟ ♡. . . </p>
 <p align="center"> <img src="https://pixelsafari.neocities.org/dividers/heart/pink/lollipops.gif">
-<p align="left"> WIP </p>
-<p align="left"> WIP </p>
-<p align="left"> WIP </p>
-<p align="left"> WIP </p>
+<p align="cxe"> そんなつもりじゃない 笑えない </p>
+<p align="left"> ねえ 痛いとかも分からないでしょ？ </p>
+<p align="left"> 返せ 返せよほら </p>
+<p align="left"> アンタに愛は勿体無いだろ </p>
 <p align="right"> <img src="https://64.media.tumblr.com/21bccd1e6262711c17b751a7c7e1227f/e0ef618f0b29dda5-83/s250x400/b5690b77addb00a73f9edf3b9f3ccc484bea6cb9.pnj">
   <p align="center">　　　</p>
 <p align="center"> <img src="https://64.media.tumblr.com/792b1b9c144d6c45b16d88a61fc4867b/d64cd6e99fc39da6-5d/s400x600/10d410e43edc22b6107ac49c288fea0ea7461bf2.jpg">
