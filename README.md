@@ -32,6 +32,13 @@
 <p align="left"> 𝐈 𝐥𝐨𝐯𝐞 𝐞𝐜𝐜𝐡𝐢, 𝐞𝐫𝐨𝐠𝐞, 𝐡𝐨𝐫𝐫𝐨𝐫 & 𝐩𝐢𝐧𝐤 </p>
 <p align="left"> 𝐩𝐥𝐬 𝐡𝐢𝐝𝐞 𝐦𝐞 𝐢𝐟 𝐲𝐨𝐮'𝐫𝐞 𝐮𝐧𝐜𝐨𝐦𝐟𝐨𝐫𝐭𝐚𝐛𝐥𝐞! </p>
 <p align="right"> <img src="https://64.media.tumblr.com/21bccd1e6262711c17b751a7c7e1227f/e0ef618f0b29dda5-83/s250x400/b5690b77addb00a73f9edf3b9f3ccc484bea6cb9.pnj">
+<p align="center">　　　</p>
 <p align="center"> <img src="https://64.media.tumblr.com/673575c17f0cb536a780f1f9a7ab92b2/dd9a4b115d17ecb1-f2/s540x810/0dbdbf00a94b81a37acbb26af0987d69507349a7.pnj">
+ <p align="right"> <img src="https://64.media.tumblr.com/5aacac658e1ff71eab56b0ac874f755c/f73306e50a2065a3-7b/s100x200/d08a9b06a1a92beb1feadf5d5e79eb5f439d1588.pnj"/><img src="https://64.media.tumblr.com/4fee1f65bcbb93e98d0cda13a9497a6b/c7622e3007499f41-1e/s100x200/d14b044ad36ccfb37169289dd4c5cd5f3cf6e38a.pnj"/><img src="https://64.media.tumblr.com/95ca700dcf6dc6d2e9aa8f0ae552658e/e87ab8024ca84dde-eb/s100x200/702273cbdc6e33be96fd48551820572fda5c65cd.pnj"/><img src="https://64.media.tumblr.com/8f9cad07fd7a147666546da2b8f7ccf0/33b52c81968e0f53-12/s100x200/1a6dde03fe13e4086593042ff71cc37c0f2776de.pnj"/>
+<img align="right" src="https://64.media.tumblr.com/2d6905f81305667cfdf24187f3f25890/e9e363a29e411440-97/s250x400/2e0252094634989d0fd6472f387998d9b1e7cf16.pnj">
+<p align="center"> 𝒢𝑒𝓉 𝑜𝓊𝓉 𝑜𝒻 𝓂𝓎 𝒽𝑒𝒶𝒹 𝒷𝑒𝒻𝑜𝓇𝑒 𝐼 𝒹𝑜 𝓌𝒽𝒶𝓉 𝐼 𝓀𝓃𝑜𝓌 𝒾𝓈 𝒷𝑒𝓈𝓉 𝒻𝑜𝓇 𝓎𝑜𝓊 <p align="center"> 𝒢𝑒𝓉 𝑜𝓊𝓉 𝑜𝒻 𝓂𝓎 𝒽𝑒𝒶𝒹 𝒷𝑒𝒻𝑜𝓇𝑒 𝐼 𝓁𝒾𝓈𝓉𝑒𝓃 𝓉𝑜 𝑒𝓋𝑒𝓇𝓎𝓉𝒽𝒾𝓃𝑔 𝓈𝒽𝑒 𝓈𝒶𝒾𝒹 𝓉𝑜 𝓂𝑒 <p align="center"> 𝒢𝑒𝓉 𝑜𝓊𝓉 𝑜𝒻 𝓂𝓎 𝒽𝑒𝒶𝒹 𝒷𝑒𝒻𝑜𝓇𝑒 𝐼 𝓈𝒽𝑜𝓌 𝓎𝑜𝓊 𝒽𝑜𝓌 𝓂𝓊𝒸𝒽 𝐼 𝓁𝑜𝓋𝑒 𝓎𝑜𝓊 <p align="center"> 𝒢𝑒𝓉 𝑜𝓊𝓉 𝑜𝒻 𝓂𝓎 𝒽𝑒𝒶𝒹 𝒷𝑒𝒻𝑜𝓇𝑒 𝐼 𝒻𝒾𝓃𝒾𝓈𝒽 𝓌𝓇𝒾𝓉𝒾𝓃𝑔 𝓉𝒽𝒾𝓈 𝓅𝑜𝑒𝓂 </p>
+<p align="center"><img src="https://64.media.tumblr.com/9285e0ba379c855c5ad82f78a9bf063e/845a43f17e91e256-65/s400x600/7f635e75c4c4168a951c11c7abf281178934ed30.jpg">
+<p align="center"> <img src="https://pixelsafari.neocities.org/misc/minibutton/personality/love/hugme.gif"> <img src="https://pixelsafari.neocities.org/misc/minibutton/personality/love/kissme.gif"> <img src="https://pixelsafari.neocities.org/misc/minibutton/personality/cute/sweetheart.gif">
+<p align="center"><img src="https://64.media.tumblr.com/b6dd6e0ff90d1638827fdd05422ed74f/dd9a4b115d17ecb1-ab/s540x810/5fddbdc3a1b493e11d7b5878bd64816c6d00af92.pnj">
 <p align="center"> <img src="https://64.media.tumblr.com/cc93d3d4cf6fc7ac7eb69e78f7b3ab08/c5dbc3103286e1e7-49/s100x200/db5c08c225b1baded2b7f5693e47ce8b3ad9b705.pnj">
 <p align="center"> <img src="https://64.media.tumblr.com/5f166eee07b6d46be8373dab640dbadf/981cee58b1860d43-de/s100x200/61c01f3b51a553382e4906d3427a9e24f713bc3e.pnj">
